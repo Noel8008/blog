@@ -22,8 +22,15 @@ Victims:
 • Korey Wise 
 </aside>
 
+<br>
+<img src="/blog/images/central_park_5.jpg">
+<br>
 
 ## The Effects of Bias
+
+<br>
+<img src="/blog/images/cp5newspaper.webp">
+<br>
 
 •Racial Profiling
 -Used when trying to figure out who the person
@@ -41,10 +48,6 @@ using terms like wolf pack, “wilding” and much more
 further giving reason for police to lock them up 
 to keep society “safe”. 
 
-<br>
-<img src="/blog/images/cp5newspaper.webp">
-<br>
-
 •Coercement on the boys
 -Detectives filled the boys with fear, holding them from eating and sleeping and going home until they used them against each other and made them say a script to get them all incarcerated.
 
@@ -59,9 +62,6 @@ Holding the boys for hours by themselves with no adult to represent them and the
 
 A little while later the police/detectives got the boys to "confess" and when prosecuted that was their whole case that they got recordings of the boys "confessing" so nypd got the most biased judge to easily lock them up. Even the lawyers of the boys having stronger cases then the lawyers against them, asking for further evidence then just confession tapes that were easily saw through that they were coerced.
 
-<br>
-<img src="/blog/images/central_park_5.jpg">
-<br>
 
 ### Discrimination
 Police saw these boys and didn't hesitate seeing them people of color they immediately started guessing and being predjudice saying they were a "teen gang" labeling them as "wilding", "a wolf-pack" and more. The whole predjucie narrative at the time of this incident was savage minorities were praying on innocent white victims which gave the legal system more drve to get these teens locked up (extending all the way to Donald J Trump to give these boys the Death Penalty.)
